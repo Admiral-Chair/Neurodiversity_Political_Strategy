@@ -50,8 +50,7 @@ It first must start by getting the moderators of this sub to agree to try and re
 10. This is explicitly an attempt to create a Neurodiversity political force with grass roots foundations and policy direction. Interpersonal drama is an explicit threat to the movement and all must remember that this should beyond specific individuals and this is towards a collective struggle for a brighter future. This doesn't mean organisers should all be on best terms and should sit through discomfort. But mod teams themselves engage with other mod teams as one, to prevent interpersonal flare up. Your loyalty is to your sub consistency and the movement. Don't let it be personal, by engaging as groups.
 11. Mental Health breaks are IMPORTANT, we understand that moderators are Human and all of this would be lots of pressure. Ideally for the most user participation and retention of mass and collective action, spacing out these strikes or operations is an essential part to maintaining the passion of such a movement. So in a same light, this also applies to the top level of the network, DO NOT overwork and burn yourselves out. The key here is that once we beat JRC, we keep fighting. JRC allows our movement to have a baptism in fire. If we beat JRC it must be remembered this is just the beginning.
 12. Doomerism and apathy is defeat. We must remember that the modern world as we know it was built on movements and struggles just like these. Look to the past for inspiration and pride. Remember Stonewall, remember the suffrage movement, the right to vote, the 8 hour work day... Maybe not all of these even apply some some of our comrades of brains countries, but when I look at Bastille day or the 13th Amendment in the United States, I do not see them as a national struggle, I see them as Humanist struggle in general. In an international sense I find pride in our Human trials against Human tyranny. Maybe you have a different perspective. But remember this... People have faced worse odds and come out on top. REMEMBER THIS AND INTERNALISE THIS!
-
-13: SOLIDARITY FOREVER! This is simple, but we must internalise this phrase.
+13. SOLIDARITY FOREVER! This is simple, but we must internalise this phrase.
 
 # WHAT MUST WE DO RIGHT NOW?:
 
@@ -105,7 +104,7 @@ Hopefully this clears up most if not everything I have to say except... A few id
 
 # SEND MATHEW ISRAEL TO THE HAGUE!
 
-# JUSTICE FOR 50 YEARS OF TERROR, AND JUSTICE 50 YEARS OF INACTION!
+# JUSTICE FOR 50 YEARS OF TERROR, AND JUSTICE FOR 50 YEARS OF INACTION!
 
 Okay. That's all of them.
 
@@ -117,4 +116,4 @@ I truly consider this to be my love letter to celebrate all of us and all of our
 
 I love you all! <3
 
-^(Forever) ^(and) ^(ever,) ^(INFINITY) ^(TO) ^(NEURODIVERSITY!)
+Forever and ever, INFINITY TO NEURODIVERSITY!

@@ -1,4 +1,6 @@
-# CALL TO ACTION: Demand community leadership to help organise and direct a mass movement against Judge Rotenburg Center! [13th of December 2022 DRAFT]
+# [13th of December 2022 DRAFT]
+
+# CALL TO ACTION: Demand community leadership to help organise and direct a mass movement against Judge Rotenburg Center!
 
 Hello this isn't you standard post. This is something I am incredibly passionate about and really would like to see something actually happen because quite frankly people don't actually realise what could be done. People don't realise how much could be achieved. People do not realise our collective power.
 

@@ -60,7 +60,7 @@ THE HIPPOCRATIC OATH: MODERN VERSION, by Louis Lasagna in 1964.
 
 # Who is on the Board of Directors?
 
-[Archived Board of Directors Page](https://web.archive.org/web/20221220070907/https://www.judgerc.org/board-of-directors.htm)
+[Archived Board of Directors Page](https://web.archive.org/web/20221220070907/https://www.judgerc.org/board-of-directors.html)
 
 ![image](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/36561ff0db7bfb5ffaebbe9b44db68fb3e77f94d/Board%20of%20Directors.PNG)
 

@@ -30,7 +30,7 @@ This is a formalised exposé of the Board of Directors of Judge Rotenburg Center
 
 All sources that are directly in the control of JRC will be archived and screenshots, so we do not increase web traffic towards JRC, which means that increased foot traffic wont ring any alarm bells if they could link back to this GitHub. And if those bastards ever try any defermation suits they can bite my ass because everything I say here is just the truth. I have no need to warp reality, these bastards have already been condemned by the [United Nations](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/a909d4b5254b4ddf75764431cd8352c5ce3ede68/Page%2083%20&%2084%20of%20report-of-the-special-rapporteur-on-torture.pdf) and are all complicit in what I would personally in my opinion consider, [Crimes Against Humanity](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/b031c722d63ae60aaea27c685a50a3d36a064864/Page%2010%20&%2011%20of%20the%20Rome%20Statute%20of%20the%20International%20Criminal%20Court.pdf), as defined by the United Nations themselves.
 
-For this reason, I refuse to respect the Doctor titles of any of these individuals as they break the sacred vowels of the hippocratic oath (in my opnion). Which I just found out right now... that the modern version actually does not contain "do no harm", which is actually quite troubling... [This is it, if you would like to read it.](https://www.pbs.org/wgbh/nova/doctors/oath_modern.html) However I feel that the Board of Directors and Mathew Israel most certainly violate this oath regardless of it not being the same oath as exists in popular imagination.
+For this reason, I refuse to respect the Doctor titles of any of these individuals as they break the sacred vowels of the hippocratic oath (in my opnion). Which I just found out right now... that the modern version actually does not contain "do no harm", which is actually quite troubling... [Here is some more infomation, if you would like to read about it.](https://www.nlm.nih.gov/hmd/greek/greek_oath.html) However I feel that the Board of Directors and Mathew Israel most certainly violate this oath regardless of it not being the same oath as exists in popular imagination.
 
 # Hippocratic Oath
 
@@ -53,6 +53,8 @@ For this reason, I refuse to respect the Doctor titles of any of these individua
 > I will remember that I remain a member of society, with special obligations to all my fellow human beings, those sound of mind and body as well as the infirm.
 >
 > If I do not violate this oath, may I enjoy life and art, respected while I live and remembered with affection thereafter. May I always act so as to preserve the finest traditions of my calling and may I long experience the joy of healing those who seek my help.
+
+THE HIPPOCRATIC OATH: MODERN VERSION, by Louis Lasagna in 1964.
 
 [Archived Board of Directors Page](https://web.archive.org/web/20221220070907/https://www.judgerc.org/board-of-directors.htm)
 

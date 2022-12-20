@@ -69,3 +69,5 @@ As we can see, these are the current, Board of Directors of Judge Rotenburg Cent
 [Archived JRC Publications Page](https://web.archive.org/web/20221220071656/https://www.judgerc.org/jrc-publications.html)
 
 ![image](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/2def6064cb4dc5a33d5516980ea7743becc71637/JRC%20Publications.PNG)
+
+Not looking great... Well if you try the archived page you will find out that half of the links are dead. However... Luckily this is the internet and nothing is actually lost so I actually have all the PDF files on this page that are referenced.

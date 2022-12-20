@@ -82,7 +82,7 @@ Not looking great... Well if you try the archived page you will find out that ha
 
 [Side Effects of Contingent Shock Treatment](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/4ac81eccdbcc543f8dc9a454922b39ab5d07d7c0/Side%20effects%20of%20contingent%20shock%20treatment.pdf)
 
-[Side Effects of Contingent Shock Treatment - Astract](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/4ac81eccdbcc543f8dc9a454922b39ab5d07d7c0/Side%20effects%20of%20contingent%20shock%20treatment.pdf)
+[Side Effects of Contingent Shock Treatment - Astract](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/83e1bd481ded3bfc79a0e60d5626ff20f4a017e6/Side%20effects%20of%20contingent%20shock%20treatment%20-%20ScienceDirect.pdf)
 
 [Seven Case Studies of Individuals Expelled from Positive-Only Programs](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/4ac81eccdbcc543f8dc9a454922b39ab5d07d7c0/Seven%20Case%20Studies%20of%20Individuals%20Expelled%20from%20Positive-Only%20Programs.pdf)
 

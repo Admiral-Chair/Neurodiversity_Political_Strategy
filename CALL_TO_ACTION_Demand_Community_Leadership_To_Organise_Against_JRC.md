@@ -122,9 +122,9 @@ Forever and ever, INFINITY TO NEURODIVERSITY!
 
 If you wish to share this document around you can download freely distributable copies here:
 
-[Word Document](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/4dee9f4278f1fffb0aecd86e26972d1776ff7e54/CALL%20TO%20ACTION%20To%20Rally%20Against%20JRC.docx))
+[Word Document](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/4dee9f4278f1fffb0aecd86e26972d1776ff7e54/CALL%20TO%20ACTION%20To%20Rally%20Against%20JRC.docx)
 
-[PDF Document](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/4dee9f4278f1fffb0aecd86e26972d1776ff7e54/CALL%20TO%20ACTION%20To%20Rally%20Against%20JRC.pdf))
+[PDF Document](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/4dee9f4278f1fffb0aecd86e26972d1776ff7e54/CALL%20TO%20ACTION%20To%20Rally%20Against%20JRC.pdf)
 
 [Word Document (Dark Mode)](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/4dee9f4278f1fffb0aecd86e26972d1776ff7e54/CALL%20TO%20ACTION%20To%20Rally%20Against%20JRC%20(Dark%20Mode).docx)
 

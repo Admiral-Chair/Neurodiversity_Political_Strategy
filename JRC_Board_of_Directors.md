@@ -90,7 +90,7 @@ Not looking great already... Well if you try the archived page you will find out
 
 [Positive-Only Programs Expel Their Difficult-To-Treat Students, Many of Whom are Then Referred to JRC for Successful Treatment](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/993855e6148994663188547322938b54087e139f/POSITIVE-ONLY%20PROGRAMS%20EXPEL%20THEIR%20DIFFICULT-TO-TREAT%20STUDENTS.pdf)
 
-**These files are too big too be uploaded to GitHub, but I have a dropbox link for people who wish to read them:**
+**These files are too big too be uploaded to GitHub, but I have a Dropbox link for people who wish to read them:**
 
 [Treatment of Aggression with Behavioral Programming that Includes Supplementary Skin-Shock](https://www.dropbox.com/s/gqf6guraowzlfpw/Treatment%20of%20Aggression%20with%20Behavioral%20Programming%20that%20Includes%20Supplementary%20Contingent%20Skin-Shock.pdf?dl=0) 
 

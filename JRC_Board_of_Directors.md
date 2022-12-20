@@ -6,7 +6,7 @@
 
 [Hippocratic Oath](#Hippocratic-Oath)
 
-[Who is on the Board of Directors?](#Who-is-on-the-Board-of-Directors?)
+[Who is on the Board of Directors?](#Who-is-on-the-Board-of-Directors)
 
 [Henry Slucki]()
 

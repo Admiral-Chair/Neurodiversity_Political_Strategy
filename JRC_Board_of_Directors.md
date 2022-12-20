@@ -70,7 +70,7 @@ As we can see, these are the current, Board of Directors of Judge Rotenburg Cent
 
 ![image](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/2def6064cb4dc5a33d5516980ea7743becc71637/JRC%20Publications.PNG)
 
-Not looking great... Well if you try the archived page you will find out that half of the links are dead. However... Luckily this is the internet and nothing is actually lost so I actually have all the PDF files on this page that are referenced.
+Not looking great... Well if you try the archived page you will find out that half of the links are dead. However... Luckily this is the internet and nothing is actually lost so I actually have all the PDF files on this page that are referenced:
 
 [Risk-Benefit Analysis of Antipsychotic Medication and Contingent Skin Shock for the Treatment of Destructive Behaviors](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/4ac81eccdbcc543f8dc9a454922b39ab5d07d7c0/A%20Risk-Benefit%20Analysis%20of%20Antipsychotic%20Medication%20and%20Contingent.pdf)
 
@@ -86,7 +86,7 @@ Not looking great... Well if you try the archived page you will find out that ha
 
 [Positive-Only Programs Expel Their Difficult-To-Treat Students, Many of Whom are Then Referred to JRC for Successful Treatment](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/993855e6148994663188547322938b54087e139f/POSITIVE-ONLY%20PROGRAMS%20EXPEL%20THEIR%20DIFFICULT-TO-TREAT%20STUDENTS.pdf)
 
-These files are too big too be uploaded to GitHub, but I have a dropbox link for people who wish to read them:
+**These files are too big too be uploaded to GitHub, but I have a dropbox link for people who wish to read them:**
 
 [Treatment of Aggression with Behavioral Programming that Includes Supplementary Skin-Shock](https://www.dropbox.com/s/gqf6guraowzlfpw/Treatment%20of%20Aggression%20with%20Behavioral%20Programming%20that%20Includes%20Supplementary%20Contingent%20Skin-Shock.pdf?dl=0) (Skim a few pages of this... I feel like this is the shit had some fuckcunt salavating as they read it out. Literally fucking disgusting.)
 

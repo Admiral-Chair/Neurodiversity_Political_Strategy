@@ -4,7 +4,7 @@
 
 [Intro](#Intro)
 
-[Hippocratic Oath](#Hippocratic&Oath)
+[Hippocratic Oath](#Hippocratic-Oath)
 
 [Henry Slucki]()
 

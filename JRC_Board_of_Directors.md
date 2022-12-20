@@ -94,7 +94,7 @@ Not looking great already... Well if you try the archived page you will find out
 
 [Treatment of Aggression with Behavioral Programming that Includes Supplementary Skin-Shock](https://www.dropbox.com/s/gqf6guraowzlfpw/Treatment%20of%20Aggression%20with%20Behavioral%20Programming%20that%20Includes%20Supplementary%20Contingent%20Skin-Shock.pdf?dl=0) 
 
-↑ (Skip to the charts of this... I feel like this is the shit had some fuckcunt salavating as they read it out. Literally fucking disgusting.)
+↑ (Skip to the charts of this... I feel like this shit had some fuckcunt salavating as they read it out. Literally fucking disgusting.)
 
 [Offender and Victim - Treatment and Prevention - 2008](https://www.dropbox.com/s/bagl34cc92n1qnk/Offender%20and%20Victim%20Treatment%20and%20Prevention.pdf?dl=0)
 

@@ -10,23 +10,23 @@
 
 [Publications](#Publications)
 
-[Henry Slucki]()
+[Henry Slucki](#Henry-Slucki)
 
-[Thomas Brady]()
+[Thomas Brady](#Thomas-Brady)
 
-[Jessica E. Van Stratton]()
+[Jessica E. Van Stratton](#Jessica-E.-Van-Stratton)
 
-[Richard Malott]()
+[Richard Malott](#Richard-Malott)
 
-[Jeffrey Sánchez]()
+[Jeffrey Sánchez](#Jeffrey-Sánchez)
 
-[Ronald Van Houten]()
+[Ronald Van Houten](#Ronald-Van-Houten)
 
-[W. Joseph Wyatt]()
+[W. Joseph Wyatt](#W.-Joseph-Wyatt)
 
-[Mathew Israel]()
+[Mathew Israel](#Mathew-Israel)
 
-[Expanded Sources]()
+[Expanded Sources](#Expanded-Sources)
 
 # Intro
 
@@ -99,3 +99,21 @@ Not looking great already... Well if you try the archived page you will find out
 [Offender and Victim - Treatment and Prevention - 2008](https://www.dropbox.com/s/bagl34cc92n1qnk/Offender%20and%20Victim%20Treatment%20and%20Prevention.pdf?dl=0)
 
 I don't expect many will read any of these, but the preservation of vital infomation is necessary to build a complete arsonal to annihilate Judge Rotenburg Center. And something tells me that JRC let these links die because they would rather make it as hard as possible for people to find out about what this facility actually does, and has done for almost over 50 years now. I consider making these easier to access a nice middle finger towards Mathew Israel and the Board themselves.
+
+# Henry Slucki
+
+# Thomas Brady
+
+# Jessica E. Van Stratton
+
+# Richard Malott
+
+# Jeffrey Sánchez
+
+# Ronald Van Houten
+
+# W. Joseph Wyatt
+
+# Mathew Israel
+
+# Expanded Sources

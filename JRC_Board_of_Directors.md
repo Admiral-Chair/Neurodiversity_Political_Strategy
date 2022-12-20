@@ -8,6 +8,8 @@
 
 [Who is on the Board of Directors?](#Who-is-on-the-Board-of-Directors)
 
+[Publications](#Publications)
+
 [Henry Slucki]()
 
 [Thomas Brady]()
@@ -65,6 +67,8 @@ THE HIPPOCRATIC OATH: MODERN VERSION, by Louis Lasagna in 1964.
 ![image](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/36561ff0db7bfb5ffaebbe9b44db68fb3e77f94d/Board%20of%20Directors.PNG)
 
 As we can see, these are the current, Board of Directors of Judge Rotenburg Center, as of 2022. We are going to go through each of these peoples histories and find out the extent of political corruption (speculation for legal reasons) and how the fingers of capital are very much... in this "pie". (Speculation for legal reasons) :P
+
+# Publications:
 
 [Archived JRC Publications Page](https://web.archive.org/web/20221220071656/https://www.judgerc.org/jrc-publications.html)
 

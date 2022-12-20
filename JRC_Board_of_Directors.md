@@ -72,11 +72,24 @@ As we can see, these are the current, Board of Directors of Judge Rotenburg Cent
 
 Not looking great... Well if you try the archived page you will find out that half of the links are dead. However... Luckily this is the internet and nothing is actually lost so I actually have all the PDF files on this page that are referenced.
 
+[Risk-Benefit Analysis of Antipsychotic Medication and Contingent Skin Shock for the Treatment of Destructive Behaviors](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/4ac81eccdbcc543f8dc9a454922b39ab5d07d7c0/A%20Risk-Benefit%20Analysis%20of%20Antipsychotic%20Medication%20and%20Contingent.pdf)
+
+[Data Tables for Risk-Benefit Analysis of Antipsychotic Medication and Contingent Skin Shock for the Treatment of Destructive Behaviors](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/4ac81eccdbcc543f8dc9a454922b39ab5d07d7c0/DATA%20TABLES%20A%20Risk-Benefit%20Analysis%20of%20Antipsychotic%20Medication%20and%20Contingent%20.pdf)
+
+[Side Effects of Contingent Shock Treatment](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/4ac81eccdbcc543f8dc9a454922b39ab5d07d7c0/Side%20effects%20of%20contingent%20shock%20treatment.pdf)
+
+[Side Effects of Contingent Shock Treatment - Astract](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/4ac81eccdbcc543f8dc9a454922b39ab5d07d7c0/Side%20effects%20of%20contingent%20shock%20treatment.pdf)
+
+[Seven Case Studies of Individuals Expelled from Positive-Only Programs](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/4ac81eccdbcc543f8dc9a454922b39ab5d07d7c0/Seven%20Case%20Studies%20of%20Individuals%20Expelled%20from%20Positive-Only%20Programs.pdf)
+
+[Offender and Victim - Treatment and Prevention - 2010](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/993855e6148994663188547322938b54087e139f/Offender%20and%20Victim%20Treatment%20and%20Prevention%202010.pdf)
+
+[Positive-Only Programs Expel Their Difficult-To-Treat Students, Many of Whom are Then Referred to JRC for Successful Treatment](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/993855e6148994663188547322938b54087e139f/POSITIVE-ONLY%20PROGRAMS%20EXPEL%20THEIR%20DIFFICULT-TO-TREAT%20STUDENTS.pdf)
 
 These files are too big too be uploaded to GitHub, but I have a dropbox link for people who wish to read them:
 
-https://www.dropbox.com/s/gqf6guraowzlfpw/Treatment%20of%20Aggression%20with%20Behavioral%20Programming%20that%20Includes%20Supplementary%20Contingent%20Skin-Shock.pdf?dl=0
+[Treatment of Aggression with Behavioral Programming that Includes Supplementary Skin-Shock](https://www.dropbox.com/s/gqf6guraowzlfpw/Treatment%20of%20Aggression%20with%20Behavioral%20Programming%20that%20Includes%20Supplementary%20Contingent%20Skin-Shock.pdf?dl=0) (Skim a few pages of this... I feel like this is the shit had some fuckcunt salavating as they read it out. Literally fucking disgusting.)
 
-https://www.dropbox.com/s/bagl34cc92n1qnk/Offender%20and%20Victim%20Treatment%20and%20Prevention.pdf?dl=0
+[Offender and Victim - Treatment and Prevention - 2008](https://www.dropbox.com/s/bagl34cc92n1qnk/Offender%20and%20Victim%20Treatment%20and%20Prevention.pdf?dl=0)
 
 I don't expect many will read any of these, but the preservation of vital infomation is necessary to build a complete arsonal to annihilate Judge Rotenburg Center. And something tells me that JRC let these links die because they would rather make it as hard as possible for people to find out about what this facility actually does, and has done for almost over 50 years now. I consider making these easier to access a nice middle finger towards Mathew Israel and the Board themselves.

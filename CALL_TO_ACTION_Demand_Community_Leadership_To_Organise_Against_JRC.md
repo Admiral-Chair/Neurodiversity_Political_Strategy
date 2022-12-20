@@ -119,3 +119,13 @@ I truly consider this to be my love letter to celebrate all of us and all of our
 I love you all! <3
 
 Forever and ever, INFINITY TO NEURODIVERSITY!
+
+If you wish to share this document around you can download freely distributable copies here:
+
+[Word Document](CALL TO ACTION To Rally Against JRC.docx)
+
+[PDF Document](CALL TO ACTION To Rally Against JRC.pdf)
+
+[Word Document (Dark Mode)](CALL TO ACTION To Rally Against JRC (Dark Mode).docx)
+
+[PDF Document (Dark Mode)](CALL TO ACTION To Rally Against JRC (Dark Mode).pdf)

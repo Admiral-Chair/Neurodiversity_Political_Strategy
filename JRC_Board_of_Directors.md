@@ -18,6 +18,8 @@
 
 [W. Joseph Wyatt]()
 
+[Mathew Israel]()
+
 # Intro
 
 [Archived Board of Directors Page](https://web.archive.org/web/20221220070907/https://www.judgerc.org/board-of-directors.htm)

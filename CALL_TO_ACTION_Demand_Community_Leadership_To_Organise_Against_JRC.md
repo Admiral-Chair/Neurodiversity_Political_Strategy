@@ -58,7 +58,7 @@ It first must start by getting the moderators of this sub to agree to try and re
 
 I call on all who feel similar on this or have been touched or impassioned by this idea... To stand with me in calling for the the moderators of r/autism to consider this proposal and this idea. I know many of us are extremely passionate about this subject as I am. And I hope I did a convincing enough job at showing just how we as simple netizens could make a huge difference. If this lights the spark I will be forever grateful that I wrote this today. If not, I will still be grateful that I did what is the best with in my abilities to try and call for organisation.
 
-This truly would be a HUGE feat is social engineering, (in a good way), and also prove as a basis of how online organisation could work within the mass communities of reddit.
+This truly would be a HUGE feat of social engineering, (in a good way), and also prove as a basis of how online organisation could work within the mass communities of reddit.
 
 # What I encourage from fellow community members:
 

@@ -30,7 +30,8 @@ All sources that are directly in the control of JRC will be archived and screens
 
 For this reason, I refuse to respect the Doctor titles of any of these individuals as they break the sacred vowels of the hippocratic oath (in my opnion). Which I just found out right now... that the modern version actually does not contain "do no harm", which is actually quite troubling... [This is it, if you would like to read it.](https://www.pbs.org/wgbh/nova/doctors/oath_modern.html) However I feel that the Board of Directors and Mathew Israel most certainly violate this oath regardless of it not being the same oath as exists in popular imagination.
 
-> test
+> I will respect the privacy of my patients, for their problems are not disclosed to me that the world may know. Most especially must I tread with care in matters of life and death. If it is given me to save a life, all thanks. But it may also be within my power to take a life; this awesome responsibility must be faced with great humbleness and awareness of my own frailty. Above all, I must not play at God.
+> I will remember that I do not treat a fever chart, a cancerous growth, but a sick human being, whose illness may affect the person's family and economic stability. My responsibility includes these related problems, if I am to care adequately for the sick.
 
 [Archived Board of Directors Page](https://web.archive.org/web/20221220070907/https://www.judgerc.org/board-of-directors.htm)
 

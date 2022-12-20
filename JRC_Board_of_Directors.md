@@ -74,7 +74,7 @@ As we can see, these are the current, Board of Directors of Judge Rotenburg Cent
 
 ![image](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/2def6064cb4dc5a33d5516980ea7743becc71637/JRC%20Publications.PNG)
 
-Not looking great... Well if you try the archived page you will find out that half of the links are dead. However... Luckily this is the internet and nothing is actually lost so I actually have all the PDF files on this page that are referenced:
+Not looking great already... Well if you try the archived page you will find out that half of the links are dead. However... Luckily this is the internet and nothing is actually lost so I actually have all the PDF files on this page that are referenced:
 
 [Risk-Benefit Analysis of Antipsychotic Medication and Contingent Skin Shock for the Treatment of Destructive Behaviors](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/4ac81eccdbcc543f8dc9a454922b39ab5d07d7c0/A%20Risk-Benefit%20Analysis%20of%20Antipsychotic%20Medication%20and%20Contingent.pdf)
 

@@ -71,3 +71,12 @@ As we can see, these are the current, Board of Directors of Judge Rotenburg Cent
 ![image](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/2def6064cb4dc5a33d5516980ea7743becc71637/JRC%20Publications.PNG)
 
 Not looking great... Well if you try the archived page you will find out that half of the links are dead. However... Luckily this is the internet and nothing is actually lost so I actually have all the PDF files on this page that are referenced.
+
+
+These files are too big too be uploaded to GitHub, but I have a dropbox link for people who wish to read them:
+
+https://www.dropbox.com/s/gqf6guraowzlfpw/Treatment%20of%20Aggression%20with%20Behavioral%20Programming%20that%20Includes%20Supplementary%20Contingent%20Skin-Shock.pdf?dl=0
+
+https://www.dropbox.com/s/bagl34cc92n1qnk/Offender%20and%20Victim%20Treatment%20and%20Prevention.pdf?dl=0
+
+I don't expect many will read any of these, but the preservation of vital infomation is necessary to build a complete arsonal to annihilate Judge Rotenburg Center. And something tells me that JRC let these links die because they would rather make it as hard as possible for people to find out about what this facility actually does, and has done for almost over 50 years now. I consider making these easier to access a nice middle finger towards Mathew Israel and the Board themselves.

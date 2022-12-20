@@ -8,4 +8,6 @@ A repository discussing potential political strategy for the Neurodiversity soci
 
 The Order is Newest First.
 
+20/12/2022 - [Judge Rotenburg Center Board of Directors Exposé](JRC_Board_of_Directors.md) [DRAFT]
+
 16/12/2022 - [CALL TO ACTION: Demand community leadership to help organise and direct a mass movement against Judge Rotenburg Center!](CALL_TO_ACTION_Demand_Community_Leadership_To_Organise_Against_JRC.md) [DRAFT]

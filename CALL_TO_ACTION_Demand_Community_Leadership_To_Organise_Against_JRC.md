@@ -2,7 +2,7 @@
 
 # CALL TO ACTION: Demand community leadership to help organise and direct a mass movement against Judge Rotenburg Center!
 
-Hello this isn't you standard post. This is something I am incredibly passionate about and really would like to see something actually happen because quite frankly people don't actually realise what could be done. People don't realise how much could be achieved. People do not realise our collective power.
+Hello this isn't your standard post. This is something I am incredibly passionate about and really would like to see something actually happen because quite frankly people don't actually realise what could be done. People don't realise how much could be achieved. People do not realise our collective power.
 
 I want to help stir up a frenzy for us to taste our first blood, and if you don't know what I mean this cryptic opening is to explain just the lengths of frustration about this issue.
 

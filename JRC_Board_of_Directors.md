@@ -100,6 +100,8 @@ Not looking great already... Well if you try the archived page you will find out
 
 I don't expect many will read any of these, but the preservation of vital infomation is necessary to build a complete arsonal to annihilate Judge Rotenburg Center. And something tells me that JRC let these links die because they would rather make it as hard as possible for people to find out about what this facility actually does, and has done for almost over 50 years now. I consider making these easier to access a nice middle finger towards Mathew Israel and the Board themselves.
 
+[Judge Rotenberg Center also published this on their ](https://web.archive.org/web/20230111021438/https://www.judgerc.org/css.html)
+
 # Henry Slucki
 
 ![image](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/ae11f38eaa0bf9eb6f4a7c8b317a8ca138c01c02/Henry%20Slucki.jpg)
@@ -112,9 +114,9 @@ Career:
 
 [Assistant Professor of Psychiatry & the Behavioral Sciences (Medical Behaviorologist) (1963-2019)](https://usc.academia.edu/HenrySlucki)
 
-Board Of Directors of Judge Rotenberg Center (-Current)
+Board Of Directors of Judge Rotenberg Center (2004-Current)
 
-[Board Of Directors of the California Institute for Yiddish Culture & Language]()
+[Board Of Directors of the California Institute for Yiddish Culture & Language](https://yiddishinstitute.org/mission-statement)
 
 [Head of the American Association of University Professors](https://www.jstor.org/stable/40250087)
 
@@ -133,3 +135,5 @@ Board Of Directors of Judge Rotenberg Center (-Current)
 # Mathew Israel
 
 # Expanded Sources
+
+[LYDIA X. Z. BROWN - LABORING FOR DISABILITY JUSTICE & LIBERATION - Blogsite](https://autistichoya.net/judge-rotenberg-center/) (Lydia does **really** good work on this and has been fighting against JRC for years, go check out their page!)

@@ -100,7 +100,7 @@ Not looking great already... Well if you try the archived page you will find out
 
 I don't expect many will read any of these, but the preservation of vital infomation is necessary to build a complete arsonal to annihilate Judge Rotenburg Center. And something tells me that JRC let these links die because they would rather make it as hard as possible for people to find out about what this facility actually does, and has done for almost over 50 years now. I consider making these easier to access a nice middle finger towards Mathew Israel and the Board themselves.
 
-[Judge Rotenberg Center also published this on their ](https://web.archive.org/web/20230111021438/https://www.judgerc.org/css.html)
+[Judge Rotenberg Center also published this on their page](https://web.archive.org/web/20230111021438/https://www.judgerc.org/css.html), after the passing of a [mass bill of bills by the United States Congress](https://autisticadvocacy.org/2022/12/congress-has-supported-the-fdas-right-to-stoptheshock/), although this does slightly change the adgenda of my politcal project... It doesn't change it completetly. There is more work to be done.
 
 # Henry Slucki
 

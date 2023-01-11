@@ -104,7 +104,7 @@ I don't expect many will read any of these, but the preservation of vital infoma
 
 ![image](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/ae11f38eaa0bf9eb6f4a7c8b317a8ca138c01c02/Henry%20Slucki.jpg)
 
-Henry Slucki, is an elderly man who has quite a long history, and an undeniably tragic history, as he was a [Jewish Holocaust Survivor](https://www.yiddishbookcenter.org/collections/oral-histories/interviews/woh-fi-0000372/henry-slucki-2013). This fact must be prefaced with the utmost clarifaction that my criticism of Henry Slucki have nothing to do with Judaism or some kind of anti-semitic conspiracy theory, because I actually like facts and reason. But I will call Henry somewhat hypocritical for being on the board of directors of JRC while having both his politics and his particular life experiences.
+Henry Slucki, is an elderly man who has quite a long history, and an undeniably tragic history, as he was a [Jewish Holocaust Survivor](https://www.yiddishbookcenter.org/collections/oral-histories/interviews/woh-fi-0000372/henry-slucki-2013). This fact must be prefaced with the utmost clarifaction that my criticism of Henry Slucki have nothing to do with Judaism or has anything to do with anti-semitic conspiracy theories; because I actually like facts and reason. But I will call Henry somewhat hypocritical for being on the board of directors of JRC while having both his politics and his particular life experiences.
 
 Career:
 

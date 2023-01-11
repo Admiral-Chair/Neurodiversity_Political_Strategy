@@ -8,6 +8,6 @@ A repository discussing potential political strategy for the Neurodiversity soci
 
 The Order is Newest First.
 
-20/12/2022 - [Judge Rotenburg Center Board of Directors Exposé](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/e19710f48490db7a4c566c45faba08fda0bbb010/JRC_Board_of_Directors.md) [DRAFT]
+20/12/2022 - [Judge Rotenburg Center Board of Directors Exposé](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/sources/JRC_Board_of_Directors.md) [DRAFT]
 
 16/12/2022 - [CALL TO ACTION: Demand community leadership to help organise and direct a mass movement against Judge Rotenburg Center!](CALL_TO_ACTION_Demand_Community_Leadership_To_Organise_Against_JRC.md) [DRAFT]

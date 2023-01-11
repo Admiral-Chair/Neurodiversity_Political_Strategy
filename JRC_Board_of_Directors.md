@@ -108,7 +108,7 @@ Henry Slucki, is an elderly man who has quite a long history, and an undeniably 
 
 Career:
 
-Co-Host of a Radio Talk Show called "Access Unlimited" on (1985-?)
+Co-Host of a Radio Talk Show called "Access Unlimited" on KPFK 90.7 FM (1985-?)
 
 
 

@@ -102,6 +102,10 @@ I don't expect many will read any of these, but the preservation of vital infoma
 
 # Henry Slucki
 
+
+
+Henry Slucki, is a very mysterious figure I have spent time trying to find info on, as his online presence is functionally non-existent. Henry is an elderly man who has quite a long history and perhaps even a tragic history as a [Jewish Holocaust Survivor](https://www.yiddishbookcenter.org/collections/oral-histories/interviews/woh-fi-0000372/henry-slucki-2013), this fact must be prefaced with the utmost clarifaction that my criticism of Henry Slucki have nothing to do with Judaism or some kind of anti-semitic conspiracy theory, because I actually like facts and reason. But I will call Henry somewhat hypocritical for being on the board of directors of JRC.
+
 # Thomas Brady
 
 # Jessica E. Van Stratton

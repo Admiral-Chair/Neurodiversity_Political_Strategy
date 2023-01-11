@@ -108,9 +108,15 @@ Henry Slucki, is an elderly man who has quite a long history, and an undeniably 
 
 Career:
 
-Co-Host of a Radio Talk Show called "Access Unlimited" on KPFK 90.7 FM (1985-?)
+[Co-Host of a Radio Talk Show called "Access Unlimited" on KPFK 90.7 FM (1985-?)](https://www.kpfk.org/on-air/jolie-mason-henry-slucki/)
 
+[Assistant Professor of Psychiatry & the Behavioral Sciences (Medical Behaviorologist) (1963-2019)](https://usc.academia.edu/HenrySlucki)
 
+Board Of Directors of Judge Rotenberg Center (-Current)
+
+[Board Of Directors of the California Institute for Yiddish Culture & Language]()
+
+[Head of the American Association of University Professors](https://www.jstor.org/stable/40250087)
 
 # Thomas Brady
 

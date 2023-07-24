@@ -140,6 +140,8 @@ Pictured left President Joe Biden; Pictured right Jeffrey Sánchez.
 
 [Senior Advisor at Rasky Partners 2019-Current](https://web.archive.org/web/20230724052730/https://rasky.com/)
 
+Board Of Directors of Judge Rotenberg Center (2021-Current)
+
 [More on LinkedIn Page](https://www.linkedin.com/in/jeffreysanchezmpa)
 
 Jeffrey Sánchez is a former Massachusetts representative who once legally defended the facility on account of his nephew being there. To quote a 2007 article by Mother Jones:

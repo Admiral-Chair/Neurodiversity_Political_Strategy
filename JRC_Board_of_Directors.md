@@ -228,7 +228,9 @@ Rasky Partners on their website talks about their success stories, and one of th
 >
 > Through a series of background briefings conducted with key media, the company was able to get its core message into news coverage and in front of key audiences without appearing to be defensive or overly aggressive.
 
-This is all particularly spicy and seems to ring a bell. Especially considering the on-going legal battle between JRC and the FDA. While there is no way to actually confirm that Rasky Partners is talking about JRC, the chances are quite high that they are possibly refering to JRC. Researching this made we want to check US deformation laws and USA-Australian extradition laws, there is more of that where that comes from.
+This is all particularly spicy and seems to ring a bell. Especially considering the on-going legal battle between JRC and the FDA. While there is no way to actually confirm that Rasky Partners is talking about JRC, the chances are quite high that they are possibly refering to JRC. Researching this made we want to check US deformation laws and USA-Australian extradition laws, but to be honest, let them.
+
+There is so many things to look through, but for now I have just scratched the surface.
 
 # Ronald Van Houten
 

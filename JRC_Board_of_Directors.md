@@ -114,7 +114,7 @@ Henry Slucki, is an elderly man who has quite a long history, and an undeniably 
 
 [Assistant Professor of Psychiatry & the Behavioral Sciences (Medical Behaviorologist) (1963-2019)](https://usc.academia.edu/HenrySlucki)
 
-Board Of Directors of Judge Rotenberg Center (2004-Current)
+Board of Directors of Judge Rotenberg Center (2004-Current)
 
 [Board Of Directors of the California Institute for Yiddish Culture & Language](https://yiddishinstitute.org/mission-statement)
 
@@ -140,7 +140,7 @@ Pictured left President Joe Biden; Pictured right Jeffrey Sánchez.
 
 [Senior Advisor at Rasky Partners 2019-Current](https://web.archive.org/web/20230724052730/https://rasky.com/)
 
-Board Of Directors of Judge Rotenberg Center (2021-Current)
+Board of Directors of Judge Rotenberg Center (2021-Current)
 
 [More on LinkedIn Page](https://www.linkedin.com/in/jeffreysanchezmpa)
 

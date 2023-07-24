@@ -108,7 +108,7 @@ I don't expect many will read any of these, but the preservation of vital infoma
 
 Henry Slucki, is an elderly man who has quite a long history, and an undeniably tragic history, as he was a [Jewish Holocaust Survivor](https://www.yiddishbookcenter.org/collections/oral-histories/interviews/woh-fi-0000372/henry-slucki-2013). This fact must be prefaced with the utmost clarifaction that my criticism of Henry Slucki have nothing to do with Judaism or has anything to do with anti-semitic conspiracy theories; because I actually like facts and reason. But I will call Henry somewhat hypocritical for being on the board of directors of JRC while having both his politics and his particular life experiences.
 
-Career:
+**Career:**
 
 [Co-Host of a Radio Talk Show called "Access Unlimited" on KPFK 90.7 FM (1985-?)](https://www.kpfk.org/on-air/jolie-mason-henry-slucki/)
 
@@ -132,11 +132,21 @@ Board Of Directors of Judge Rotenberg Center (2004-Current)
 
 Pictured left President Joe Biden; Pictured right Jeffrey Sánchez.
 
+**Career:**
+
+[Representative for the 15th Suffolk District as a Democrat between 2003-2019](https://malegislature.gov/Legislators/Profile/J_S1/Biography)
+
+[Principal of Sánchez Strategies LLC 2019-Current](https://web.archive.org/web/20230724052321/https://www.jeffreysanchez.com/)
+
+[Senior Advisor at Rasky Partners 2019-Current](https://web.archive.org/web/20230724052730/https://rasky.com/)
+
+[More on LinkedIn Page](https://www.linkedin.com/in/jeffreysanchezmpa)
+
 Jeffrey Sánchez is a former Massachusetts representative who once legally defended the facility on account of his nephew being there. To quote a 2007 article by Mother Jones:
 
 > In this battle, Israel has the perfect ally: state Rep. Jeffrey Sanchez, whose nephew Brandon has been in Israel’s care since age 12; Brandon, now 27, is one of Israel’s most challenging cases, with a long record of extremely self-injurious behavior. This is the same Brandon who Israel once shocked more than 5,000 times, prompting him to make a new device that could deliver much more pain. Nevertheless, Brandon’s parents credit Israel with saving their son’s life, and his uncle has helped ensure that no bill banning aversives becomes law.
 
-In 2023, Brandon would either be 42 or 43 years old today; this means of Brandon is still at the facility they would have been 15 years younger back in 2007. Allegedly Brandon Sánchez was the first person to be subjected to shock torture at JRC. This means Brandon has been subjected to these practices for over 20 years, possibly even longer. More than half of their life has been spent at JRC, and their life has been of torture and misery. Yet we are supposed to belive that their poor behaviour wasn't made worse by how they have been treated? 
+In 2023, Brandon would either be 32 or 33 years old today; this means of Brandon is still at the facility they would have been 15 years younger back in 2007. Allegedly Brandon Sánchez was the first person to be subjected to shock torture at JRC. This means Brandon has been subjected to these practices for over 20 years, possibly even longer. More than half of their life has been spent at JRC, and their life has been of torture and misery. Yet we are supposed to belive that their poor behaviour wasn't made worse by how they have been treated? 
 
 What is Brandon's story?
 
@@ -207,6 +217,18 @@ community outings and weekly field trips to places such as museums, amusement ce
 and was able to go on frequent home visits with his family.
 
 This story is from the ['Seven Case Studies of Individuals Expelled from Positive-Only Programs'](#Publications) resource.
+
+There is so much to be said about Jeffery and his involvement which was instrumental in the defence of JRC from legal scrutiny in 2012. But there is a slight rabbit hole in regards to Rasky Partners. Rasky Partners is a lobbying firm which Jeffery is a Senor Advisor at; yet Rasky Partners has no such mention of him, Jeffery is interesting as he is the only member of the board of directors to have little detail provided, as in only his name is provided. I presume this is because it is a corruption rabbit hole. The classic post-service cushy job comes to mind.
+
+Rasky Partners on their website talks about their success stories, and one of them seems particularly interesting, such as [Confidential Healthcare Contractor](https://web.archive.org/web/20230724054258/https://rasky.com/success-stories/confidential-healthcare-contractor) which is described as the following:
+
+> Our team provided strategic communications counsel and support to a healthcare company facing high-profile media scrutiny and potential litigation for its work supporting a state’s implementation of the Affordable Care Act.
+>
+> Working alongside the company’s legal counsel, we helped prepare for potential litigation and dispel myths surrounding the company’s work through the delivery of coordinated messaging to key audiences.  Our team worked with the company’s spokespeople to prepare them for briefings with reporters and other stakeholders.  We also developed supporting materials for the company’s internal communications and government relations efforts.
+>
+> Through a series of background briefings conducted with key media, the company was able to get its core message into news coverage and in front of key audiences without appearing to be defensive or overly aggressive.
+
+This is all particularly spicy and seems to ring a bell. Especially considering the on-going legal battle between JRC and the FDA. While there is no way to actually confirm that Rasky Partners is talking about JRC, the chances are quite high that they are possibly refering to JRC. Researching this made we want to check US deformation laws and USA-Australian extradition laws, there is more of that where that comes from.
 
 # Ronald Van Houten
 

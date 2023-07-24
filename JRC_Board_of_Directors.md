@@ -128,7 +128,7 @@ Board Of Directors of Judge Rotenberg Center (2004-Current)
 
 # Jeffrey Sánchez
 
-[![image](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/ae11f38eaa0bf9eb6f4a7c8b317a8ca138c01c02/Jeffrey%20Sánchez.png)](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/sources/Jeffrey%20S%C3%A1nchez.png)
+![image](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/sources/Jeffrey%20S%C3%A1nchez.png)
 
 # Ronald Van Houten
 

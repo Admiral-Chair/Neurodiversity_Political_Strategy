@@ -30,7 +30,7 @@
 
 # Intro
 
-This is a formalised exposé of the Board of Directors of Judge Rotenburg Center, as you can see in an image we will soon cover, and also there will be a section dedicated the founder Mathew Isreal who is a man who should be viewed in similar regard to [Josef Mengele](https://encyclopedia.ushmm.org/content/en/article/josef-mengele) or even [Hans Aspberger](https://www.theguardian.com/world/2018/apr/19/hans-asperger-aided-and-supported-nazi-programme-study-says) himself. But lets not get ahead of ourselves... Why is Mathew no longer on the board, and who are these other people, and what role do they play?
+This is a formalised exposé of the Board of Directors of Judge Rotenburg Center, as you can see in an image we will soon cover, and also there will be a section dedicated the founder Mathew Isreal who is a man who should be viewed in similar regard to [Josef Mengele](https://encyclopedia.ushmm.org/content/en/article/josef-mengele) or even [Hans Asperger](https://www.theguardian.com/world/2018/apr/19/hans-asperger-aided-and-supported-nazi-programme-study-says) himself. But lets not get ahead of ourselves... Why is Mathew no longer on the board, and who are these other people, and what role do they play?
 
 All sources that are directly in the control of JRC will be archived and screenshots, so we do not increase web traffic towards JRC, which means that increased foot traffic wont ring any alarm bells if they could link back to this GitHub. And if those bastards ever try any defermation suits they can bite my ass because everything I say here is just the truth. I have no need to warp reality, these bastards have already been condemned by the [United Nations](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/a909d4b5254b4ddf75764431cd8352c5ce3ede68/Page%2083%20&%2084%20of%20report-of-the-special-rapporteur-on-torture.pdf) and are all complicit in what I would personally in my opinion consider, [Crimes Against Humanity](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/b031c722d63ae60aaea27c685a50a3d36a064864/Page%2010%20&%2011%20of%20the%20Rome%20Statute%20of%20the%20International%20Criminal%20Court.pdf), as defined by the United Nations themselves.
 
@@ -129,6 +129,84 @@ Board Of Directors of Judge Rotenberg Center (2004-Current)
 # Jeffrey Sánchez
 
 ![image](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/blob/sources/Jeffrey%20S%C3%A1nchez.png)
+
+Pictured left President Joe Biden; Pictured right Jeffrey Sánchez.
+
+Jeffrey Sánchez is a former Massachusetts representative who once legally defended the facility on account of his nephew being there. To quote a 2007 article by Mother Jones:
+
+> In this battle, Israel has the perfect ally: state Rep. Jeffrey Sanchez, whose nephew Brandon has been in Israel’s care since age 12; Brandon, now 27, is one of Israel’s most challenging cases, with a long record of extremely self-injurious behavior. This is the same Brandon who Israel once shocked more than 5,000 times, prompting him to make a new device that could deliver much more pain. Nevertheless, Brandon’s parents credit Israel with saving their son’s life, and his uncle has helped ensure that no bill banning aversives becomes law.
+
+In 2023, Brandon would either be 42 or 43 years old today; this means of Brandon is still at the facility they would have been 15 years younger back in 2007. Allegedly Brandon Sánchez was the first person to be subjected to shock torture at JRC. This means Brandon has been subjected to these practices for over 20 years, possibly even longer. More than half of their life has been spent at JRC, and their life has been of torture and misery. Yet we are supposed to belive that their poor behaviour wasn't made worse by how they have been treated? 
+
+What is Brandon's story?
+
+We can't know for sure but here is something which seems to match the details of Brandon's personal life even thought it was depersonalised. In the following report he is simply refered to as 'Student 7'. Perhaps by some standards de-anonymising this data might seem immoral, I honestly think that Brandon's story deserves to be heard. If this is not Brandon, than let it be a note of perspective.
+
+> Student 7 was enrolled in special education programs starting at the age of 5, when he attended a 
+day program operated by School E. Student 7’s mother reports that he was out of control while there and 
+frequently ran nonstop around the classroom. During a weekend respite stay at School E, Student 7
+opened a bottle of liquid Mellaril and drank the entire bottle. He ended up in the emergency room and on 
+the pediatric unit of a hospital for three days. Student 7 was discharged from School E after one year 
+because he was not making any progress and his inappropriate behaviors were increasing.
+> 
+> Student 7 was then admitted to the same School A that is referred to above. At that point he was 
+engaging in 70-80 aggressive and self-injurious behaviors per day. His most severe behaviors included 
+biting himself and others, bolting from staff, pinching himself and others and pica. He was discharged 
+from School A after 1 year because he was not making progress and his behaviors were increasing.
+> 
+> Student 7 then spent 7 years at School F. School F’s interventions included the use of group 
+dynamics, art, music, academics and the acquisition of communication and daily living skills. During 
+Student 7’s stay at School F, he made significant progress in learning daily living skills but his severe 
+maladaptive behaviors impeded continuous growth in all other areas. He would often have tantrums 
+involving violent aggressive outbursts and health dangerous behaviors such as frequently bolting from 
+teachers and engaging in pica. Student 7’s mother was unable to control his severely dangerous behaviors 
+when he was at home during vacation periods. He would stay awake during the night hours and engage in 
+pica, ingesting household items such as motor oil, detergents, bleach, plants, lead paint and deodorant. On 
+one occasion, Student 7 assaulted his brother while his bother was driving a moving vehicle. During 
+Student 7’s vacation periods he repeatedly chewed on the woodwork in his mother’s house.
+> 
+> School F was unable to treat Student 7 successfully and at age 12 he was removed and enrolled in 
+School G. While at School G the frequency and intensity of his dangerous behaviors began to increase. 
+He recurrently targeted younger children and females with intense aggression, often biting and scratching 
+them. These outbursts were sometimes without antecedents and appeared premeditated. He would wait 
+for the staff member or peer to turn his or her back to him and then aggress. Antecedents or situations 
+likely to bring about behavioral outbursts included placing demands on him, telling him “no”, and 
+denying him a food item that he desired. Because he attacked his family when at home, he could not go 
+on regular home visits or on community trips with them.
+> 
+> One of the principal interventions used at School G involved escorting him to a secluded area subsequent to an aggressive or health dangerous episode and prompting him into a seated position. In this 
+area he often would bite his hand or bang his head while moaning. On several occasions it required 
+additional staff support to contain him in this area because he attempted to assault the staff. If these 
+episodes occurred while at his group home, Student 7 would be escorted to an empty room and be left 
+unattended. Once there, he often destroyed the blinds in the room, bit himself and continually got out of 
+his seat. In addition Student 7 engaged in frequent disruptive and noncompliant behaviors such as 
+screaming, refusing to follow directions or respond to physical prompts, disrobing, and masturbating in 
+public. While at School G, he was prescribed Risperdal, which was also unsuccessful in treating his 
+behaviors.
+> 
+> In April 2003, Student 7, now age 16, was admitted to JRC. Figure 7 shows the monthly totals of 
+Student 7’s most dangerous behaviors.
+> 
+> ![image](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy/assets/105038164/a7589e42-e21b-4889-9597-ceaeb0855fe2)
+> 
+> Figure 7. The effect of contingent skin-shock on the aggressive, health dangerous, major disruptive, 
+destructive, and noncompliant behaviors of Student 7.
+> 
+> When Student 7 was admitted to JRC he was treated with positive-only programming for over six months. 
+During this period there was no deceleration in his problem behaviors and he was engaging in a mean of 
+1,753 dangerous and disruptive behaviors per month. After these six months of positive-only 
+programming, contingent skin-shock was added to Student 7’s treatment. Student 7’s health dangerous, 
+aggressive, destructive, major disruptive and noncompliant behaviors then showed an immediate 
+decrease. If we once again ignore the skin-shock insertion month shown in the inset, the jump down is 
+from 1,476 per month (last full baseline month) to 92 per month (first full treatment month), dividing by a 
+factor of 16. Thereafter the behavior decelerated over the next 15 months to 2 or 3 per month. During the 
+last three years he has exhibited a mean of only 6.8 problem behaviors per month.
+> 
+> In addition to these behavioral improvements, Student 7 advanced academically and socially. As of October, 2003 when skin-shock was inserted into his program, Student 7 was able to participate in 
+community outings and weekly field trips to places such as museums, amusement center, and restaurants 
+and was able to go on frequent home visits with his family.
+
+This story is from the ['Seven Case Studies of Individuals Expelled from Positive-Only Programs'](#Publications) resource.
 
 # Ronald Van Houten
 
